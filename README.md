@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="7973516881824611919" data-share-method="host" data-aspect-ratio="1.62745" data-width="100%"><a href="https://tenor.com/view/akira-sato-the-fable-gif-7973516881824611919">Akira Sato The Fable GIF</a>from <a href="https://tenor.com/search/akira+sato-gifs">Akira Sato GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![Akira Sato The Fable GIF](https://media.tenor.com/images/7973516881824611919.gif)
